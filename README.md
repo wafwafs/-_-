@@ -1,1 +1,1 @@
-# -_-
+-> [![](https://i.postimg.cc/L8FxrSch/nagi-woof.jpg)](https://tgstat.ru/en/channel/@drochunalolei)<-
